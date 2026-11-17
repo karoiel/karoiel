@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @karoiel
+- 👋 Hi, I’m Karol
 - 👀 I’m interested in graphic design
 - 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate on anything
